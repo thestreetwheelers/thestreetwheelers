@@ -1,4 +1,4 @@
-### Hi there 👋
+### I'm easily led when my little head does the thinking.
 
 <!--
 **thestreetwheelers/thestreetwheelers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
